@@ -13,6 +13,9 @@
 ![image](https://github.com/ravgar/canzade-kimene-bots/assets/97904458/087c4684-f0c6-45d8-a9cd-a6b1669a51de)
 ![image](https://github.com/ravgar/canzade-kimene-bots/assets/97904458/080ddac2-e666-4246-94a1-d9fed1e9c39d)
 
+# İLETİŞİM İÇİN 
+[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/1049727678091120640?hideDiscrim=true)](https://discord.com/users/1049727678091120640)
+
 
 
 
