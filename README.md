@@ -1,5 +1,6 @@
 # BOTLAR YARIN YADA BU AKŞAM BURDA OLACAK
 
+# Botların Ve Kodların %99'u Muratva Stark ve Barbar338
 · Canzade ve Kimene Eşşşeklerine Gelirsek Ücretli Dersler Verilir Saati 500 TL'den 
 · Kimseyi Tehdit Edemezsiniz Sikimin Kılları Sizi Adam Akıllı Durun 
 · Bundan Sonrada Size Prim Yok Trendyol Devleri Sizi 
